@@ -15,5 +15,5 @@
 - 💼 Prepare for internships and career opportunities
 
 ## 📫 Connect with me
-- LinkedIn: (https://www.linkedin.com/in/YOUR-USERNAME/)](https://www.linkedin.com/in/sagargrv/)
+- LinkedIn: (https://www.linkedin.com/in/sagargrv/)
 - Email: work.sagargurav1812@gmail.com
